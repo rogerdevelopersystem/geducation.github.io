@@ -1,1 +1,0 @@
-# geducation.github.io
